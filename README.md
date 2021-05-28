@@ -6,3 +6,9 @@
 - 🤔 I’m looking for help with HTML,PHP,BASH and Python
 - 📫 How to reach me :-
                        @instagram- anonymous_ashterix
+
+
+# Wish me luck
+https://www.buymeacoffee.com/anonymous24x7
+
+https://imjo.in/QzaYw6   --INDIAN USERS ONLY
