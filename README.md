@@ -9,5 +9,6 @@
 
 
 # Wish me luck
-[![logo](https://user-images.githubusercontent.com/81870774/126652344-cdf26799-1a38-4f71-a380-03dfaaa35685.png)](https://www.buymeacoffee.com/anonymous24x7)
-https://imjo.in/QzaYw6   --INDIAN USERS ONLY
+[ ![download](https://user-images.githubusercontent.com/81870774/126652538-86ebe281-492e-4d41-ad4d-0145a854200c.png)](https://www.buymeacoffee.com/anonymous24x7)
+\n
+[💵](https://imjo.in/QzaYw6)
