@@ -6,7 +6,8 @@
 - 🤔 I’m looking for help with HTML,PHP,BASH and Python
 - 📫 How to reach me :- 
                        [@email-](Anonymous24x7.in@protonmail.com)
-                       [@email-](https://www.instagram.com/anonymous_ashterix/)
+                       
+                       [@insta-](https://www.instagram.com/anonymous_ashterix/)
 
 
 # Wish me luck
