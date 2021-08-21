@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on any project related to it.
 - 🤔 I’m looking for help with HTML,PHP,BASH and Python
 - 📫 How to reach me :-
-                       [insta](https://www.instagram.com/anonymous_ashterix/)
+                       [![Insta](https://user-images.githubusercontent.com/81870774/130314540-f7d8455b-30ea-4f1b-abed-95d3f4dd43cd.png)](https://www.instagram.com/ashterix.pvt/)
 
 
 # Wish me luck
